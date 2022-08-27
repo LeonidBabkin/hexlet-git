@@ -1,1 +1,1 @@
-I am a feshman here, yet
+I am a freshman here, yet
